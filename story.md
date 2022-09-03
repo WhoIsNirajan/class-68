@@ -1,0 +1,1 @@
+A long time ago, demons and humans were battling for power over the world, then nirajan came killed the demons then the humans and nirajan lived happily ever after. 
