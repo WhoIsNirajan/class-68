@@ -5,3 +5,4 @@ Demon-4 Gorgathra
 Demon-5 Gishtur
 Demon-6 Pyl
 Hero-1 Nirajan 
+Hero-2 Humera
